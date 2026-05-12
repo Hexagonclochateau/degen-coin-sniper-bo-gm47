@@ -1,4 +1,4 @@
-# 
+# exclusive Token Sniper for degen coin sniper bot | snipe-list-management & dex-sniping is the best degen coin sniper bot, featuring snipe-list-management and dex-sniping. Fast,
 
 
 
